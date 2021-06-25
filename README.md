@@ -1,2 +1,1 @@
 Thanaruch Chaisupat
-2
